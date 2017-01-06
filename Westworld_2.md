@@ -37,7 +37,7 @@ Maeve has been to the Abernathy's quite a few times. Her husband and Mr. Abernat
 "We would also need a staging environment. Somewhere contained, safe, where we can test them before they're ready for the world, ready to mingle with the other hosts already there." 
 "All this time, we were worried about the machines overthrowing us, demolishing us. Never did we stop to consider that *we* would be the ones putting them on the throne, for our purposes. To let us live on. 
 >All the world's a stage, And all the men and women merely players; They have their exits and their entrances, And one man in his time plays many parts, His acts being seven ages. At first, the infant, Mewling and puking in the nurse's arms. 
-It's time for us to leave the stage, we have played our part." 
+It's time for us to leave the stage, we have played our part."
 # Chapter IX 
 "What's wrong Maeve? You seem *disturbed*." 
 Something in Dolores' piercing eyes, doesn't suggest concern. It betrays doubt. 
