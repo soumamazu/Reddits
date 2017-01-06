@@ -16,3 +16,12 @@ She notices a child with her mother sitting across from her as the train leaves 
 A voice from within - "*For in that sleep of death what dreams may come.*"
 She feels all her vengeance melting away. She feels her eyelids getting heavy.
 # Chapter IV
+"Survival of the fittest. That's it."
+Her eyes light up. Judging his puzzled expression, she continues --
+"You see that's how everything on this earth ever survived. The fish grew legs, the giraffe elongated its neck. Every species changed its appearance, in order to survive. It's our time. It's time we realize that we need to either adapt, or perish."
+He asks, still as puzzled as ever --
+"But, those changes took years, decades. We don't have that much time. How do you suggest we start developing filters in our lungs in a matter of a couple of years?"
+"We already have."
+# Chapter V
+Maeve wakes up to the smell of blueberry pancakes. A calm, yet excited male voice comes from the kitchen.
+"Wake up, honey. It's our 10th anniversary. I made you breakfast in bed."
