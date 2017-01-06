@@ -25,3 +25,9 @@ He asks, still as puzzled as ever --
 # Chapter V
 Maeve wakes up to the smell of blueberry pancakes. A calm, yet excited male voice comes from the kitchen.
 "Wake up, honey. It's our 10th anniversary. I made you breakfast in bed."
+She sits up, and puts her hand on her abdomen. Something doesn't feel right. She knows who she is, she remembers her husband's name, she remembers meeting him for the first time at the hospital when they brought her in after she collapsed at a train station. But, something doesn't fit. She feels like she's missing something. Like a chunk of her has just been evicersated. Her husband enters the room --
+"You should be up by now, honey. Remember, we are invited to lunch at the Abernathy's farm upstate."
+# Chapter VI
+"Don't you see? It really is that simple. We have been evolving over all these years. We have become accustomed to living a virtual life. Our real entities, awareness, intelligence, all stacked up online. We stopped going out of our houses, meeting people. We have been slowly transferring our consciousness into Android mediums all these years. Don't you see? The only think real about us, is online, and the only thing not able to adapt to that change: our failing boidies."
+# Chapter VII
+Maeve has been to the Abernathy's quite a few times. Her husband and Mr. 
