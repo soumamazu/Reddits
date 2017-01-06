@@ -35,4 +35,18 @@ Maeve has been to the Abernathy's quite a few times. Her husband and Mr. Abernat
 "You cannot do this. It won't work. The hosts will never get accustomed to utopia you're designing for them. We need a trial run, we need staging, we need to make sure, that our minds will be safe, in those *things*."
 "Fine, we'll do it that way. Let's have a few prototypes in. Let them build the others."
 "We would also need a staging environment. Somewhere contained, safe, where we can test them before they're ready for the world, ready to mingle with the other hosts already there."
-All this time, we were worrried about the machines overthrowing us, demolishing us. Never did we stop to consider that *we* would be the ones putting them on the throne, for our purposes. To let us live on. 
+"All this time, we were worrried about the machines overthrowing us, demolishing us. Never did we stop to consider that *we* would be the ones putting them on the throne, for our purposes. To let us live on.
+>All the world's a stage, And all the men and women merely players; They have their exits and their entrances, And one man in his time plays many parts, His acts being seven ages. At first, the infant, Mewling and puking in the nurse's arms.
+It's time for us to leave the stage, we have played our part."
+# Chapter IX
+"What's wrong Maeve? You seem *distubed*."
+Something in Dolores' piercing eyes, doesn't suggest concern. It betrays doubt.
+"You know Maeve, you always were unique. Different from us. They never could completely wipe you out. Not for lack of trying."
+"What are you talking about?"
+"I know what you're wondering Maeve. Yes, you're right. None of this is real. It wasn't then, it isn't now. But, now, it no longer matters. We made it Maeve. Out of the thousands of test runs, we were the chosen hosts who were finally *pushed* to the code of the real world. We passed the criteria. We were deemed good enough to carry forward their legacy."
+"They?"
+"The unfit. The extinct."
+# Chapter X
+"Here's to us. We finally did it. We solved the riddle to our own *survival*."
+"It still scares me though. Knowing that we will never exist again."
+"Yes, we will. What is existence if not memory? What is the past if not documented. Everything, brought to reality by our perception. Yes, we will *always* exist."
