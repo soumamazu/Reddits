@@ -6,10 +6,10 @@ She gets a hold on herself and rushes to the train station.
 "I must escape this place."
 Distant sounds of gun shots echo around her.
 # Chapter II
-In a brighly lit conference room, two people sit across a big screen. Both of them look perplexed. The girl chews on the end of her ball-point and exhales.
+In a brighly lit conference room, two people sit across a big screen. Both of them look perplexed. One of them chews on the end of her ball-point and exhales.
 "We cannot survive like this any longer. The air is toxic, the water saline, the environment poisoned. The world as we know it, is falling apart, and there's nothing we can do about it."
 "Now, now. Don't be so pessimistic. Us humans have always found a way to survive. We will again."
-His words reassure her, but, only for so long.
+His words are reassuring, but, only for so long.
 # Chapter III
 She notices a child with her mother sitting across from her as the train leaves the Westworld complex. It suddenly comes out of a tunnel, and Maeve is hit by the first ray of the sun. "The real sun", she thinks to herself. She takes in a deep breath.
 "Maybe it isn't so bad after all. Maybe I can choose not to see the ugliness in this world. The disarray. I choose to see the beauty. I'll get a new life, a new identity, just *live* for real this time."
@@ -17,7 +17,7 @@ A voice from within - "*For in that sleep of death what dreams may come.*"
 She feels all her vengeance melting away. She feels her eyelids getting heavy.
 # Chapter IV
 "Survival of the fittest. That's it."
-Her eyes light up. Judging his puzzled expression, she continues --
+His eyes light up. Judging his puzzled expression, she continues --
 "You see that's how everything on this earth ever survived. The fish grew legs, the giraffe elongated its neck. Every species changed its appearance, in order to survive. It's our time. It's time we realize that we need to either adapt, or perish."
 He asks, still as puzzled as ever --
 "But, those changes took years, decades. We don't have that much time. How do you suggest we start developing filters in our lungs in a matter of a couple of years?"
@@ -49,4 +49,6 @@ Something in Dolores' piercing eyes, doesn't suggest concern. It betrays doubt.
 # Chapter X
 "Here's to us. We finally did it. We solved the riddle to our own *survival*."
 "It still scares me though. Knowing that we will never exist again."
-"Yes, we will. What is existence if not memory? What is the past if not documented. Everything, brought to reality by our perception. Yes, we will *always* exist."
+"Yes, we will. What is existence if not memory? What is the past if not documented. Everything, brought to reality by our perception. Yes, we will *always* exist. In *them*".
+The champagne laddled with cyanide drips to the floor.
+*For in that sleep of death what dreams may come.*
