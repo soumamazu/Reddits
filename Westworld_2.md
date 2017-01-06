@@ -30,4 +30,9 @@ She sits up, and puts her hand on her abdomen. Something doesn't feel right. She
 # Chapter VI
 "Don't you see? It really is that simple. We have been evolving over all these years. We have become accustomed to living a virtual life. Our real entities, awareness, intelligence, all stacked up online. We stopped going out of our houses, meeting people. We have been slowly transferring our consciousness into Android mediums all these years. Don't you see? The only think real about us, is online, and the only thing not able to adapt to that change: our failing boidies."
 # Chapter VII
-Maeve has been to the Abernathy's quite a few times. Her husband and Mr. 
+Maeve has been to the Abernathy's quite a few times. Her husband and Mr. Abernathy had been friends since childhood, and are now business partners. As they drive through the hilly lanes leading up to the Abernathy's farm. Maeve has been awfully quiet this whole time. Her daughter is hustling and bustling in the car in anticipation of having to swim in the lake. She looks at the world outside, and they come out of a tunnel. A flashback - a huge complex building, a train stations, numerous naked bodies lying on the floor, being stabbed by a man in black. She shudders, tries to wipe off the sweat on her forehead. Only, there is none.
+# Chapter VIII
+"You cannot do this. It won't work. The hosts will never get accustomed to utopia you're designing for them. We need a trial run, we need staging, we need to make sure, that our minds will be safe, in those *things*."
+"Fine, we'll do it that way. Let's have a few prototypes in. Let them build the others."
+"We would also need a staging environment. Somewhere contained, safe, where we can test them before they're ready for the world, ready to mingle with the other hosts already there."
+All this time, we were worrried about the machines overthrowing us, demolishing us. Never did we stop to consider that *we* would be the ones putting them on the throne, for our purposes. To let us live on. 
